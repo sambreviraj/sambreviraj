@@ -1,4 +1,4 @@
-👋 Hi there! I'm **Viraj**, a 24-year-old analyst based in **New York**. 
+👋 Hi there! I'm **Viraj**, a 25-year-old analyst based in **New York**. 
 
 🔍 I believe the hardest thing is to choose what matters, and as an analyst, I've honed the skill of **prioritizing**.
 
